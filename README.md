@@ -1,1 +1,1 @@
-# rsschool-cv
+https://falzzze.github.io/rsschool-cv/cv
